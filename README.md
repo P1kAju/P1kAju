@@ -9,7 +9,7 @@
     Physical pain, mechanical soaring
     <img src="https://github.githubassets.com/images/mona-whisper.gif" width="50">
     <br><br>
-    P.S. 这是抄周哥的 :v:
+
   </samp>
 </p>
 
